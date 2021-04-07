@@ -1,0 +1,1 @@
+# Veritaban--Emlakcilik
